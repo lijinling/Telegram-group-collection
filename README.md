@@ -1,3 +1,8 @@
+►币安（持BNB减40%手续费）：https://accounts.binance.com/register?ref=B8JG8G8V
+币安邀请码：B8JG8G8V
+
+►欧易OKX（永久减免20%手续费）：https://cnouyi.gratis/join/7279960
+欧易邀请码：7279960
 
 ##### 推荐[](https://congcong0806.github.io/2018/04/24/Telegram/#%E6%8E%A8%E8%8D%90)
 
